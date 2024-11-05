@@ -5,8 +5,6 @@
 layout: home
 ---
 
-# High Gear Hobby and Games
-
 ![High Gear Logo](./assets/high_gear_logo.png)
 
 We are **High Gear Hobby and Games**. We carry a large variety of board games, RPGs, miniatures, paints, RC cars, RC parts, and much more. We love to help everyone with their hobbies, whether it's getting supplies, offering advice, answering questions, or helping people find like-minded individuals. 
