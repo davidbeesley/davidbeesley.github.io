@@ -48,8 +48,8 @@ remote_theme: pages-themes/merlot@v0.2.0
 #
 title: High Gear Hobby and Games
 email: sales@highgearhobby.com
-description: >-
-  High Gear Hobby and Games is your go-to place for board games, RPGs, miniatures, RC cars, and more. 
+# description: >-
+#   High Gear Hobby and Games is your go-to place for board games, RPGs, miniatures, RC cars, and more. 
 
 # Set this to true to enable GitHub Pages
 github-pages: true
