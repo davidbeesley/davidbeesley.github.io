@@ -22,8 +22,8 @@
 url: "http://highgearhobby.com" # the base hostname & protocol for your site, e.g. http://example.com
 
 # Build settings
-# theme: jekyll-theme-merlot
-remote_theme: pages-themes/merlot@v0.2.0
+theme: minima 
+# remote_theme: pages-themes/merlot@v0.2.0
 
 # Exclude from processing.
 # The following items will not be processed, by default.
@@ -65,7 +65,7 @@ github-pages: true
 plugins:
   - jekyll-feed
   - jekyll-seo-tag
-  - jekyll-remote-theme # add this line to the plugins list if you already have one
+  # - jekyll-remote-theme # add this line to the plugins list if you already have one
 
 # Excludes (optional)
 exclude:
