@@ -39,11 +39,33 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 
 ## Upcoming Events
 
-Currently, there are no upcoming events. Stay tuned!
+**November 2, 2024**  
+**Yu-Gi-Oh Tournament**  
+📅 November 2 @ 12:30 pm - 3:00 pm  
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 
-Check our [events calendar](https://highgearhobby.com/events/) for the latest updates on upcoming events and tournaments.
+Bring your Yu-Gi-Oh deck and play against other great decks. Who will have the best deck? Who will win against the odds? Come find out.
 
 ---
+
+**November 1, 2024**  
+**FNM Commander**  
+📅 November 1 @ 5:00 pm - 9:00 pm  
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+
+Join us every Friday for some casual commander. Bring your favorite commander deck or one you've recently made, and play in a pod against multiple opponents. All skill levels are welcome.
+
+---
+
+**October 31, 2024**  
+**Warhammer 40k**  
+📅 October 31 @ 6:00 pm - 9:00 pm  
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+
+Come play with this great casual Warhammer 40k group. Bring your army of 500+ points or come use one of our armies to play. Both casual and competitive players are welcome.
+
+---
+
 
 ## Contact Us
 
@@ -60,6 +82,4 @@ Feel free to reach out with any questions or just stop by the store. We look for
 
 ---
 
-> **High Gear Hobby and Games**  
-> A community for hobby enthusiasts, bringing you everything from board games and RPGs to RC cars and miniatures!
 
