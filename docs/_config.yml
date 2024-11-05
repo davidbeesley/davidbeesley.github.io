@@ -53,10 +53,10 @@ description: >-
 # Set this to true to enable GitHub Pages
 github-pages: true
 
-# Owner/author information
-author:
-  name: High Gear Hobby and Games
-  email: sales@highgearhobby.com
+# # Owner/author information
+# author:
+#   name: High Gear Hobby and Games
+#   email: sales@highgearhobby.com
 
 
 
