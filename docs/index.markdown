@@ -34,6 +34,7 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 - **Magic the Gathering: Commander:** Wednesday @ 11:00 am and Friday @ 5:00 pm
 - **Warhammer 40k (500+ points):** Thursday @ 6:00 pm
 - **Yu-Gi-Oh ($5):** Saturday 12:30 pm
+
 ---
 
 ## Upcoming Events
