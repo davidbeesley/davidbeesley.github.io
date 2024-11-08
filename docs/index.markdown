@@ -54,6 +54,7 @@ Celebrate the release of MTG Foundations! Join us for pre-release events through
 💲 Entry Fee: $10  
 
 Bring your favorite Modern deck and join us for some competitive Magic: The Gathering. All skill levels are welcome.
+
 ---
 
 **MTG Foundations Draft**  
