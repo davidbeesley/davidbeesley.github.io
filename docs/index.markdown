@@ -15,12 +15,12 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 
 ## Hours of Operation
 
-- **Monday:** 11:00 am – 07:00 pm
-- **Tuesday:** 11:00 am – 09:00 pm
-- **Wednesday:** 11:00 am – 07:00 pm
+- **Monday:** 11:00 am – 7:00 pm
+- **Tuesday:** 11:00 am – 9:00 pm
+- **Wednesday:** 11:00 am – 7:00 pm
 - **Thursday:** 11:00 am – 10:00 pm
 - **Friday:** 11:00 am – 10:00 pm
-- **Saturday:** 11:00 am – 07:00 pm
+- **Saturday:** 11:00 am – 7:00 pm
 - **Sunday:** Closed
 
 > *Hours may change due to events*
@@ -29,40 +29,72 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 
 ## Weekly Events
 
-- **Heroclix:** Tuesday @ 6:30 pm
+- **Heroclix:** Tuesday @ 6:30 pm and Saturday @ 3:00 pm
 - **Star Wars: Legion and Shatterpoint Clone:** Tuesday @ 6:30 pm
-- **Magic the Gathering: Commander:** Wednesday @ 11:00 am
+- **Magic the Gathering: Commander:** Wednesday @ 11:00 am and Friday @ 5:00 pm
 - **Warhammer 40k (500+ points):** Thursday @ 6:00 pm
-- **Magic the Gathering: Commander:** Friday @ 5:00 pm
-
+- **Yu-Gi-Oh ($5):** Saturday 12:30 pm
 ---
 
 ## Upcoming Events
 
-**November 2, 2024**  
-**Yu-Gi-Oh Tournament**  
-📅 November 2 @ 12:30 pm - 3:00 pm  
+**MTG Foundations Pre-Release**  
+📅 November 8 @ 3:00 pm & 6:30 pm, November 9 @ 11:00 am & 3:00 pm  
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $30  
 
-Bring your Yu-Gi-Oh deck and play against other great decks. Who will have the best deck? Who will win against the odds? Come find out.
+Celebrate the release of MTG Foundations! Join us for pre-release events throughout the weekend. Secure your spot and get a sneak peek at the latest cards.
 
 ---
 
-**November 1, 2024**  
-**FNM Commander**  
-📅 November 1 @ 5:00 pm - 9:00 pm  
+**MTG Tuesday Modern**  
+📅 November 12 @ 6:00 pm   
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $10  
 
-Join us every Friday for some casual commander. Bring your favorite commander deck or one you've recently made, and play in a pod against multiple opponents. All skill levels are welcome.
+Bring your favorite Modern deck and join us for some competitive Magic: The Gathering. All skill levels are welcome.
+---
+
+**MTG Foundations Draft**  
+📅 November 15 @ 6:30 pm, November 22 @ 6:30 pm   
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $30  
+
+Draft your deck with MTG Foundations cards and compete with fellow players. Test your skills in a friendly yet competitive environment.
 
 ---
 
-**October 31, 2024**  
-**Warhammer 40k**  
-📅 October 31 @ 6:00 pm - 9:00 pm  
+**Yu-Gi-Oh Holiday Charity Event**  
+📅 November 16 @ 12:00 pm  
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 
-Come play with this great casual Warhammer 40k group. Bring your army of 500+ points or come use one of our armies to play. Both casual and competitive players are welcome.
+Join our Yu-Gi-Oh Charity Event and support a good cause. Bring 5 non-perishable food items to participate.
+
+---
+
+**Heroclix Tournament**  
+📅 November 16 @ 2:00 pm  
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $40  
+
+Bring your best team and strategies to this exciting Heroclix Tournament. Compete for prizes and glory!
+
+---
+
+**Song of Ice & Fire Learn to Play**  
+📅 November 16 @ 3:00 pm  
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Free  
+
+Learn the basics of Song of Ice & Fire and start your journey in this fantastic tabletop game. All beginners are welcome!
+
+---
+**Red Dragon Inn**  
+📅 December 7 @ 4:00 pm  
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Free  
+
+Join us for a fun evening of Red Dragon Inn. This event is free, so bring your friends and enjoy a lively game session.
 
 ---
 
