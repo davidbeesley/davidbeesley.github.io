@@ -67,7 +67,7 @@ Bring your favorite Modern deck and join us for some competitive Magic: The Gath
 ---
 
 **MTG Foundations Draft**  
-📅 December 6 & 13 @ 6:30 pm, November 22 @ 6:30 pm   
+📅 December 6 & 13 @ 6:30 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $30  
 
