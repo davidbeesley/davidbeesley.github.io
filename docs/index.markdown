@@ -32,7 +32,7 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 - **Heroclix:** Tuesday @ 6:30 pm and Saturday @ 3:00 pm
 - **Star Wars: Legion and Shatterpoint** Tuesday @ 6:30 pm
 - **Magic the Gathering: Standard Showdown:** Friday @ 6:00 pm
--**Magic the Gathering: Foundations Draft:** Friday @ 6:30 pm
+- **Magic the Gathering: Foundations Draft:** Friday @ 6:30 pm
 - **Magic the Gathering: Commander:** Wednesday @ 11:00 am and Friday @ 5:00 pm
 - **Warhammer 40k (500+ points):** Thursday @ 6:00 pm
 - **Yu-Gi-Oh ($5):** Saturday @ 12:30 pm
