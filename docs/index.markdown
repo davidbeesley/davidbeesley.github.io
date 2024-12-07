@@ -31,7 +31,8 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 
 - **Heroclix:** Tuesday @ 6:30 pm and Saturday @ 3:00 pm
 - **Star Wars: Legion and Shatterpoint** Tuesday @ 6:30 pm
--**Magic the Gathering: Foundations Draft:** Friday @ 6:30 PM
+- **Magic the Gathering: Standard Showdown:** Friday @ 6:00 pm
+-**Magic the Gathering: Foundations Draft:** Friday @ 6:30 pm
 - **Magic the Gathering: Commander:** Wednesday @ 11:00 am and Friday @ 5:00 pm
 - **Warhammer 40k (500+ points):** Thursday @ 6:00 pm
 - **Yu-Gi-Oh ($5):** Saturday @ 12:30 pm
@@ -54,20 +55,21 @@ Start Learning Magic the Gathering with us! Lots of helpful Deck Building advice
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $20
 
-A Standard Format Tournament to see who's the best! Compete for Duskmourn Promo Cards.
+A Standard Format Tournament to see who's the best! Compete for Duskmourn Promo Cards. 
 
 ---
-**MTG Tuesday Modern**  
-📅 December 10 & 17  @ 6:00 pm   
-📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $10  
 
-Bring your favorite Modern deck and join us for some competitive Magic: The Gathering. All skill levels are welcome.
+**MTG Standard Showdown**  
+📅 December 13 & 20 @ 6:00 pm 
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $30  
+
+Draft your deck with MTG Foundations cards and compete with fellow players. Test your skills in a friendly yet competitive environment.
 
 ---
 
 **MTG Foundations Draft**  
-📅 December 6 & 13 @ 6:30 pm 
+📅 December 13 & 27 @ 6:30 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $30  
 
