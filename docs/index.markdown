@@ -55,7 +55,7 @@ Start Learning Magic the Gathering with us! Lots of helpful Deck Building advice
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $20
 
-A Standard Format Tournament to see who's the best! Compete for Duskmourn Promo Cards. 
+A Standard Format Tournament to see who's the best! Compete for Duskmourn Promo Cards.
 
 ---
 
