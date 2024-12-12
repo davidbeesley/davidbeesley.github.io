@@ -41,15 +41,6 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 
 ## Upcoming Events
 
-**Magic Academy: Deck Building**  
-📅 December 7 @ 3:00 pm  
-📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $35  
-
-Start Learning Magic the Gathering with us! Lots of helpful Deck Building advice to get you started!
-
----
-
 **MTG Duskmourn Store Championship**  
 📅 December 13 @ 6:30 pm  
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
