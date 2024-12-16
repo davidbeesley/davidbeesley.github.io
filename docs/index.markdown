@@ -41,15 +41,6 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 
 ## Upcoming Events
 
-**MTG Duskmourn Store Championship**  
-📅 December 13 @ 6:30 pm  
-📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $20
-
-A Standard Format Tournament to see who's the best! Compete for Duskmourn Promo Cards.
-
----
-
 **MTG Standard Showdown**  
 📅 December 13 & 20 @ 6:00 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
@@ -65,15 +56,6 @@ Draft your deck with MTG Foundations cards and compete with fellow players. Test
 💲 Entry Fee: $30  
 
 Draft your deck with MTG Foundations cards and compete with fellow players. Test your skills in a friendly yet competitive environment.
-
----
-
-**Red Dragon Inn**  
-📅 December 7 @ 4:00 pm  
-📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Free  
-
-Join us for a fun evening of Red Dragon Inn. This event is free, so bring your friends and enjoy a lively game session.
 
 ---
 
