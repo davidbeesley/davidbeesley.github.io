@@ -16,9 +16,9 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 ## Hours of Operation
 
 - **Monday:** 11:00 am – 7:00 pm
-- **Tuesday:** 11:00 am – 9:00 pm
-- **Wednesday:** 11:00 am – 7:00 pm
-- **Thursday:** 11:00 am – 10:00 pm
+- **Tuesday, Christmas Eve:** 11:00 am – 3:00 pm
+- **Wednesday, Christmas:** CLOSED
+- **Thursday:** 11:00 am - 10:00 pm
 - **Friday:** 11:00 am – 10:00 pm
 - **Saturday:** 11:00 am – 7:00 pm
 - **Sunday:** Closed
@@ -42,29 +42,29 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 ## Upcoming Events
 
 **MTG Standard Showdown**  
-📅 December 13 & 20 @ 6:00 pm 
+📅 December 27 & January 3 @ 6:00 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $30  
+💲 Free
 
-Draft your deck with MTG Foundations cards and compete with fellow players. Test your skills in a friendly yet competitive environment.
+Show your skill with Standard legal constructed decks in friendly and competitive tourney play.
 
 ---
 
 **MTG Foundations Draft**  
-📅 December 13 & 27 @ 6:30 pm 
+📅 December 27 & January 3 @ 6:30 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $30  
+💲 Entry Fee: $20
 
 Draft your deck with MTG Foundations cards and compete with fellow players. Test your skills in a friendly yet competitive environment.
 
 ---
 
-**Song of Ice & Fire Learn to Play**  
-📅 December 19 @ 6:00 pm  
+**Yu-Gi-Oh! *Speed Duel Battle City Finals* Release Celebration**  
+📅 December 28 @ 3:00 pm  
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Free  
+💲 Entry Fee: $30
 
-Learn the basics of Song of Ice & Fire and start your journey in this fantastic tabletop game. All beginners are welcome!
+A one day special event to celebrate the release of *Speed Duel Battle City Finals*
 
 ---
 
