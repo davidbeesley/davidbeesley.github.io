@@ -18,7 +18,7 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 - **Monday:** 11:00 am – 7:00 pm
 - **Tuesday, New Year's Eve:** 11:00 am – 5:00 pm
 - **Wednesday, New Year's Day:** CLOSED
-- **Thursday:** 11:00 am - 7:00 pm
+- **Thursday:** 11:00 am - 10:00 pm
 - **Friday:** 11:00 am – 10:00 pm
 - **Saturday:** 11:00 am – 7:00 pm
 - **Sunday:** Closed
