@@ -16,8 +16,8 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 ## Hours of Operation
 
 - **Monday:** 11:00 am – 7:00 pm
-- **Tuesday, New Year's Eve:** 11:00 am – 5:00 pm
-- **Wednesday, New Year's Day:** CLOSED
+- **Tuesday:** 11:00 am – 9:00 pm
+- **Wednesday:** 11:00 am - 7:00 pm
 - **Thursday:** 11:00 am - 10:00 pm
 - **Friday:** 11:00 am – 10:00 pm
 - **Saturday:** 11:00 am – 7:00 pm
@@ -42,7 +42,7 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 ## Upcoming Events
 
 **MTG Standard Showdown**  
-📅 December 27 & January 3 @ 6:00 pm 
+📅 January 3 & 10 @ 6:00 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Free
 
@@ -51,7 +51,7 @@ Show your skill with Standard legal constructed decks in friendly and competitiv
 ---
 
 **MTG Foundations Draft**  
-📅 December 27 & January 3 @ 6:30 pm 
+📅 January 3 & 10 @ 6:30 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $20
 
@@ -59,12 +59,12 @@ Draft your deck with MTG Foundations cards and compete with fellow players. Test
 
 ---
 
-**Yu-Gi-Oh! *Speed Duel Battle City Finals* Release Celebration**  
-📅 December 28 @ 3:00 pm  
+**Yu-Gi-Oh! Tournament**  
+📅 January 4 & 11 @ 12:30 pm  
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $30
+💲 Entry Fee: $5
 
-A one day special event to celebrate the release of *Speed Duel Battle City Finals*
+Bring your favorite Yu-Gi-Oh! Deck for a friendly weekly tournament
 
 ---
 
