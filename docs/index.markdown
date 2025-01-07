@@ -42,7 +42,7 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 ## Upcoming Events
 
 **MTG Standard Showdown**  
-📅 January 3 & 10 @ 6:00 pm 
+📅 January 10 & 17 @ 6:00 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Free
 
@@ -51,11 +51,29 @@ Show your skill with Standard legal constructed decks in friendly and competitiv
 ---
 
 **MTG Foundations Draft**  
-📅 January 3 & 10 @ 6:30 pm 
+📅 January 10 @ 6:30 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $20
 
 Draft your deck with MTG Foundations cards and compete with fellow players. Test your skills in a friendly yet competitive environment.
+
+---
+
+**MTG Innistrad Remastered Preview Event**  
+📅 January 17 @ 6:30 pm 
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $30
+
+Get a first look at Innistrad Remastered with a WPN Store Exlusive Preview Event, and celebrate Magic's return to Innistrad
+
+---
+
+**MTG Innistrad Remastered Take Home Preview**  
+📅 January 17 - 23
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $30
+
+Can't make it to the in-store Preview? No worries! Visit the store and ask for a Take Home kit and play with friends and family at home!
 
 ---
 
