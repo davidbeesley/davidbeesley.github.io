@@ -73,7 +73,7 @@ Get a first look at Innistrad Remastered with a WPN Store Exlusive Preview Event
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $30
 
-Can't Make it to the in store Preview? No worries! Visit the store and ask for a Take Home kit and play with friends and family at home!
+Can't make it to the in-store Preview? No worries! Visit the store and ask for a Take Home kit and play with friends and family at home!
 
 ---
 
