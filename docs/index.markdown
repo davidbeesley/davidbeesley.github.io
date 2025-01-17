@@ -41,26 +41,35 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 
 ## Upcoming Events
 
-**MTG Standard Showdown**  
-📅 January 10 & 17 @ 6:00 pm 
+**Yu-Gi-Oh! Supreme Darkness Sneak Peek**
+📅 January 18 @ 3:00 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Free
+💲 Entry Fee: $22.50
 
-Show your skill with Standard legal constructed decks in friendly and competitive tourney play.
+Take a sneak peek at the newest Yu-Gi-Oh! set before next week and play in the tournament for a chance to win special themed prizes!
 
 ---
 
-**MTG Innistrad Remastered Preview Event**  
-📅 January 17 @ 6:30 pm 
+**MTG Foundations Draft**  
+📅 January 24 @ 6:30 pm 
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $20
+
+Flex your skills with an all-time core set Draft of MTG
+
+---
+
+**MTG Innistrad Remastered Preview**  
+📅 January 24 @ 6:30 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $30
 
-Get a first look at Innistrad Remastered with a WPN Store Exlusive Preview Event, and celebrate Magic's return to Innistrad
+Return to Innistrad with our first ever Booster Draft of the set!
 
 ---
 
 **Yu-Gi-Oh! Tournament**  
-📅 January 4 & 11 @ 12:30 pm  
+📅 January 18 & 25 @ 12:30 pm  
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $5
 
@@ -68,7 +77,23 @@ Bring your favorite Yu-Gi-Oh! Deck for a friendly weekly tournament
 
 ---
 
+**Aetherdrift Prerelease**
+📅 February 7 @ 3:00 pm & 6:30 pm
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $30
 
+Race across the omenpaths with a first look at the latest MTG set, featuring planes old and new colliding in a high octane death race!
+
+---
+
+**Aetherdrift Prerelease**
+📅 February 8 @ 11:00 am & 3:00 pm
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $30
+
+Race across the omenpaths with a first look at the latest MTG set, featuring planes old and new colliding in a high octane death race!
+
+---
 
 ## Contact Us
 
