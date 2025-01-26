@@ -80,7 +80,7 @@ Race across the omenpaths with a first look at the latest MTG set, featuring pla
 ---
 
 **Yu-Gi-Oh! Tournament**  
-📅 January 18 & 25 @ 12:30 pm  
+📅 February 1 & 8 @ 12:30 pm  
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $5
 
