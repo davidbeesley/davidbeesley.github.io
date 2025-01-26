@@ -41,39 +41,23 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 
 ## Upcoming Events
 
-**Yu-Gi-Oh! Supreme Darkness Sneak Peek**
-📅 January 18 @ 3:00 pm 
-📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $22.50
+---
 
-Take a sneak peek at the newest Yu-Gi-Oh! set before next week and play in the tournament for a chance to win special themed prizes!
+**Heroclix Collector's Trove Prerelease**  
+📅 January 28 @ 6:30 pm 
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $35
+
+Peek into the Collector's Trove of goodies with a preview of the latest Heroclix set, including two boosters to build your team with before it releases!
 
 ---
 
-**MTG Foundations Draft**  
-📅 January 24 @ 6:30 pm 
+**MTG Innistrad Remastered Draft**  
+📅 January 31 @ 6:30 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $20
+💲 Entry Fee: $25
 
-Flex your skills with an all-time core set Draft of MTG
-
----
-
-**MTG Innistrad Remastered Preview**  
-📅 January 24 @ 6:30 pm 
-📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $30
-
-Return to Innistrad with our first ever Booster Draft of the set!
-
----
-
-**Yu-Gi-Oh! Tournament**  
-📅 January 18 & 25 @ 12:30 pm  
-📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $5
-
-Bring your favorite Yu-Gi-Oh! Deck for a friendly weekly tournament
+Lurk into the shadows of classic Innistrad with the gorgeous new Remaster!
 
 ---
 
@@ -92,6 +76,15 @@ Race across the omenpaths with a first look at the latest MTG set, featuring pla
 💲 Entry Fee: $30
 
 Race across the omenpaths with a first look at the latest MTG set, featuring planes old and new colliding in a high octane death race!
+
+---
+
+**Yu-Gi-Oh! Tournament**  
+📅 January 18 & 25 @ 12:30 pm  
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $5
+
+Bring your favorite Yu-Gi-Oh! Deck for a friendly weekly tournament
 
 ---
 
