@@ -30,9 +30,8 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 ## Weekly Events
 
 - **Heroclix:** Tuesday @ 6:30 pm and Saturday @ 3:00 pm
-- **Star Wars: Legion and Shatterpoint** Tuesday @ 6:30 pm
 - **Magic the Gathering: Standard Showdown:** Friday @ 6:00 pm
-- **Magic the Gathering: Foundations Draft:** Friday @ 6:30 pm
+- **Magic the Gathering: Aetherdrift Draft:** Friday @ 6:30 pm
 - **Magic the Gathering: Commander:** Wednesday @ 11:00 am and Friday @ 5:00 pm
 - **Warhammer 40k (500+ points):** Thursday @ 6:00 pm
 - **Yu-Gi-Oh ($5):** Saturday @ 12:30 pm
@@ -40,24 +39,6 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 ---
 
 ## Upcoming Events
-
----
-
-**Heroclix Collector's Trove Prerelease**  
-📅 January 28 @ 6:30 pm 
-📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $35
-
-Peek into the Collector's Trove of goodies with a preview of the latest Heroclix set, including two boosters to build your team with before it releases!
-
----
-
-**MTG Innistrad Remastered Draft**  
-📅 January 31 @ 6:30 pm 
-📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $25
-
-Lurk into the shadows of classic Innistrad with the gorgeous new Remaster!
 
 ---
 
@@ -79,8 +60,17 @@ Race across the omenpaths with a first look at the latest MTG set, featuring pla
 
 ---
 
+**MTG Aetherdrift Draft**  
+📅 February 14 & 21 @ 6:30 pm 
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $20
+
+Start Your Engines! It's our weekly booster draft featuring Magic's latest high octane set
+
+---
+
 **Yu-Gi-Oh! Tournament**  
-📅 February 1 & 8 @ 12:30 pm  
+📅 February 8 & 15 @ 12:30 pm  
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $5
 
