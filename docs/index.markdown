@@ -42,24 +42,6 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 
 ---
 
-**Aetherdrift Prerelease**
-📅 February 7 @ 3:00 pm & 6:30 pm
-📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $30
-
-Race across the omenpaths with a first look at the latest MTG set, featuring planes old and new colliding in a high octane death race!
-
----
-
-**Aetherdrift Prerelease**
-📅 February 8 @ 11:00 am & 3:00 pm
-📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $30
-
-Race across the omenpaths with a first look at the latest MTG set, featuring planes old and new colliding in a high octane death race!
-
----
-
 **MTG Aetherdrift Draft**  
 📅 February 14 & 21 @ 6:30 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
@@ -69,8 +51,17 @@ Start Your Engines! It's our weekly booster draft featuring Magic's latest high 
 
 ---
 
+**Yu-Gi-Oh! Blue Eyes White Dragon Celebration**  
+📅 February 15 @ 12:30 pm  
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $12
+
+Get your hands on the new Blue Eyes White Destiny Structure Deck and go head to head to see who's best!
+
+---
+
 **Yu-Gi-Oh! Tournament**  
-📅 February 8 & 15 @ 12:30 pm  
+📅 February 22 @ 12:30 pm  
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $5
 
