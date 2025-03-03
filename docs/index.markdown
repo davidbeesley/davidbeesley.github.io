@@ -42,8 +42,17 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 
 ---
 
+**Heroclix: Spider-Verse Pre-release** 
+📅 March 4 @ 6:30 pm
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $33.98
+
+Jump into the Spider-Verse with this preview of the latest Heroclix set
+
+---
+
 **MTG Aetherdrift Draft**  
-📅 February 14 & 21 @ 6:30 pm 
+📅 March 7 & 14 @ 6:30 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $20
 
@@ -51,17 +60,8 @@ Start Your Engines! It's our weekly booster draft featuring Magic's latest high 
 
 ---
 
-**Yu-Gi-Oh! Blue Eyes White Dragon Celebration**  
-📅 February 15 @ 12:30 pm  
-📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $12
-
-Get your hands on the new Blue Eyes White Destiny Structure Deck and go head to head to see who's best!
-
----
-
 **Yu-Gi-Oh! Tournament**  
-📅 February 22 @ 12:30 pm  
+📅 March 8 & 15 @ 12:30 pm  
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $5
 
