@@ -42,21 +42,39 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 
 ---
 
-**Heroclix: Spider-Verse Pre-release** 
-📅 March 4 @ 6:30 pm
+**Magic Store Championship**  
+📅 March 21 @ 6:30 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $33.98
+💲 Entry Fee: $20
 
-Jump into the Spider-Verse with this preview of the latest Heroclix set
+It's once again Store Championship time! Bring your best Standard deck and compete head to head with others for the title!
 
 ---
 
 **MTG Aetherdrift Draft**  
-📅 March 7 & 14 @ 6:30 pm 
+📅 March 28 @ 6:30 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $20
 
 Start Your Engines! It's our weekly booster draft featuring Magic's latest high octane set
+
+---
+
+**MTG Tarkir: Dragonstorm Prerelease**  
+📅 April 4 @ 3:00 PM & 6:30 pm 
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $35
+
+Tarkir returns, bigger than ever! Unique Clan gameplay, new powerful dragons and more with an exciting Prerelease with unique Clan themed Prerelease packs!
+
+---
+
+**MTG Tarkir: Dragonstorm Prerelease**  
+📅 April 5 @ 11:00 AM & 3:00 pm 
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $35
+
+Tarkir returns, bigger than ever! Unique Clan gameplay, new powerful dragons and more with an exciting Prerelease with unique Clan themed Prerelease packs!
 
 ---
 
