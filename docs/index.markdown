@@ -42,17 +42,8 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 
 ---
 
-**Heroclix: Spider-Verse Pre-release** 
-📅 March 4 @ 6:30 pm
-📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $33.98
-
-Jump into the Spider-Verse with this preview of the latest Heroclix set
-
----
-
 **MTG Aetherdrift Draft**  
-📅 March 7 & 14 @ 6:30 pm 
+📅 March 28 @ 6:30 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $20
 
@@ -60,12 +51,30 @@ Start Your Engines! It's our weekly booster draft featuring Magic's latest high 
 
 ---
 
+**MTG Tarkir: Dragonstorm Prerelease**  
+📅 April 4 @ 3:00 pm & 6:30 pm 
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $35
+
+Return to Tarkir with an explosive set featuring your favorite clans returning!
+
+---
+
+**MTG Tarkir: Dragonstorm Prerelease**  
+📅 April 5 @ 11:00 am & 3:00 pm 
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+💲 Entry Fee: $35
+
+Return to Tarkir with an explosive set featuring your favorite clans returning!
+
+---
+
 **Yu-Gi-Oh! Tournament**  
-📅 March 8 & 15 @ 12:30 pm  
+📅 March 22 & 29 @ 12:30 pm  
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $5
 
-Bring your favorite Yu-Gi-Oh! Deck for a friendly weekly tournament
+Bring your favorite Yu-Gi-Oh! Deck for a friendly weekly tournament.
 
 ---
 
