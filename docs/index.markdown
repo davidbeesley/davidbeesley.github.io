@@ -42,30 +42,30 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 
 ---
 
-**MTG Aetherdrift Draft**  
-📅 March 28 @ 6:30 pm 
+**MTG Tarkir: Dragonstorm Draft**  
+📅 April 11 & 18 @ 6:30 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $20
 
-Start Your Engines! It's our weekly booster draft featuring Magic's latest high octane set
+Do you hear that rumbling? The Dragonstorms rage on in the latest set, featuring Tarkir and its iconic Clan gameplay in our weekly Draft
 
 ---
 
-**MTG Tarkir: Dragonstorm Prerelease**  
-📅 April 4 @ 3:00 pm & 6:30 pm 
+**MTG Tarkir: Dragonstorm Standard Showdown**
+📅 April 11 & 18 @ 6:00 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $35
+💲 Entry Fee: FREE
 
-Return to Tarkir with an explosive set featuring your favorite clans returning!
+Bring your Standard deck and face off against friendly competitors to see who's the best, hosted weekly!
 
 ---
 
-**MTG Tarkir: Dragonstorm Prerelease**  
-📅 April 5 @ 11:00 am & 3:00 pm 
+**MTG Tarkir: Dragonstorm Commander Party**
+📅 April 11 & 18 @ 6:00 pm 
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
-💲 Entry Fee: $35
+💲 Entry Fee: FREE
 
-Return to Tarkir with an explosive set featuring your favorite clans returning!
+Come have some fun with a unique twist on the Commander format that's themed around Tarkir using custom play aids!
 
 ---
 
