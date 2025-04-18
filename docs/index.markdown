@@ -42,27 +42,27 @@ Join us for our **weekly and monthly events** or just stop by to say hello!
 
 ---
 
-**MTG Tarkir: Dragonstorm Draft**  
-📅 April 11 & 18 @ 6:30 pm 
-📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+**MTG Tarkir: Dragonstorm Draft**    
+📅 April 18 & 25 @ 6:30 pm   
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville    
 💲 Entry Fee: $20
 
 Do you hear that rumbling? The Dragonstorms rage on in the latest set, featuring Tarkir and its iconic Clan gameplay in our weekly Draft
 
 ---
 
-**MTG Tarkir: Dragonstorm Standard Showdown**
-📅 April 11 & 18 @ 6:00 pm 
-📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+**MTG Tarkir: Dragonstorm Standard Showdown**  
+📅 April 18 & 25 @ 6:00 pm   
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville    
 💲 Entry Fee: FREE
 
 Bring your Standard deck and face off against friendly competitors to see who's the best, hosted weekly!
 
 ---
 
-**MTG Tarkir: Dragonstorm Commander Party**
-📅 April 11 & 18 @ 6:00 pm 
-📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
+**MTG Tarkir: Dragonstorm Commander Party**  
+📅 April 18 @ 6:00 pm   
+📍 High Gear Hobby, 2160 West 4700 South, Taylorsville    
 💲 Entry Fee: FREE
 
 Come have some fun with a unique twist on the Commander format that's themed around Tarkir using custom play aids!
@@ -70,7 +70,7 @@ Come have some fun with a unique twist on the Commander format that's themed aro
 ---
 
 **Yu-Gi-Oh! Tournament**  
-📅 March 22 & 29 @ 12:30 pm  
+📅 April 19 & 26 @ 12:30 pm  
 📍 High Gear Hobby, 2160 West 4700 South, Taylorsville  
 💲 Entry Fee: $5
 
